@@ -12,15 +12,29 @@ A few years back a lot of songs had the line - **"Do you like to party??!!"**. O
 
 Imagine the most powerful king of the universe throwing a party, now that would be something! Everything would be top class, in-fact it is hard to imagine how good this party would be. Let's continue and read the parable in full -
 
-        1-3  Jesus responded by telling still more stories. “God’s kingdom,” he said, “is like a king who threw a wedding banquet for his son. He sent out servants to call in all the invited guests. And they wouldn’t come!
+        1-3  Jesus responded by telling still more stories.
+        “God’s kingdom,” he said, “is like a king who threw a wedding banquet for his son.
+        He sent out servants to call in all the invited guests. And they wouldn’t come!
 
-        4  “He sent out another round of servants, instructing them to tell the guests, ‘Look, everything is on the table, the prime rib is ready for carving. Come to the feast!’
+        4  “He sent out another round of servants, instructing them to tell the guests,
+        ‘Look, everything is on the table, the prime rib is ready for carving. Come to the feast!’
 
-        5–7  “They only shrugged their shoulders and went off, one to weed his garden, another to work in his shop. The rest, with nothing better to do, beat up on the messengers and then killed them. The king was outraged and sent his soldiers to destroy those thugs and level their city.
+        5–7  “They only shrugged their shoulders and went off, one to weed his garden,
+        another to work in his shop.
+        The rest, with nothing better to do, beat up on the messengers and then killed them.
+        The king was outraged and sent his soldiers to destroy those thugs and level their city.
 
-        8–10  “Then he told his servants, ‘We have a wedding banquet all prepared but no guests. The ones I invited weren’t up to it. Go out into the busiest intersections in town and invite anyone you find to the banquet.’ The servants went out on the streets and rounded up everyone they laid eyes on, good and bad, regardless. And so the banquet was on—every place filled.
+        8–10  “Then he told his servants, ‘We have a wedding banquet all prepared but no guests.
+        The ones I invited weren’t up to it.
+        Go out into the busiest intersections in town and invite anyone you find to the banquet.’
+        The servants went out on the streets and rounded up everyone they laid eyes on,
+        good and bad, regardless. And so the banquet was on—every place filled.
 
-        11–13  “When the king entered and looked over the scene, he spotted a man who wasn’t properly dressed. He said to him, ‘Friend, how dare you come in here looking like that!’ The man was speechless. Then the king told his servants, ‘Get him out of here—fast. Tie him up and ship him to hell. And make sure he doesn’t get back in.’
+        11–13  “When the king entered and looked over the scene,
+        he spotted a man who wasn’t properly dressed.
+        He said to him, ‘Friend, how dare you come in here looking like that!’
+        The man was speechless. Then the king told his servants,
+        ‘Get him out of here—fast. Tie him up and ship him to hell. And make sure he doesn’t get back in.’
 
         14  “That’s what I mean when I say, ‘Many get invited; only a few make it.’ ”
 
