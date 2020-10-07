@@ -5,7 +5,7 @@ date: '2020-08-29'
 disqus: false
 ---
 
-It was a cold day in December, I had gone through a series of tests and on 30th December 2019 we were supposed to see the doctor to get my results. The doctor made us wait a bit and then told me and my wife that I had a rare type of cancer - "Thymus Carcinoma".
+It was a cold day in December, I had gone through a series of tests and on 30th December 2019 we were supposed to see the doctor to get my results. The doctor made us wait a bit and then told me and my wife that I had a rare type of cancer - "Thymus Carcinoma" in the fourth stage.
 
 <!--truncate-->
 
@@ -19,7 +19,7 @@ Then in March, the world was hit by the Corona virus pandemic. For a couple of d
 
 I cannot describe how God kept my spirit and body up in those days and in May I was scheduled for a big surgery. The doctors wanted to do something called "hot chemotherapy" which meant my surgery time would be around 10-12 hours. On a normal day someone would be scared to hear this but both me and my wife trusted God. We knew if Jesus wanted me to stay alive even a 12 hour surgery would do me no harm. By this time we had seen so much love from God and the touch of His Holy Spirit that I went to the operation room smiling and came out of it praising God. My wife was at home praying all this time, she could not even see me because of the Corona virus precautions in the hospital.
 
-God sustained me on the hospital bed, and to the doctor's suprise I was fit enough to go back home in 3 weeks. I cannot describe to you how good Jesus is, when we are in the storm He is carrying us. This is my testimony, I had surrendered it all to Jesus. I did not have the mental or physical strength to go through a big surgery or for my stay in the hospital with all the wires and pipes sticking out of me. But I do not think I had a moment when I did not feel the presence of Jesus by my side. Every time I called, He was besides me and He is there still to this very day.
+God sustained me on the hospital bed, and to the doctor's surprise I was fit enough to go back home in 3 weeks. I cannot describe to you how good Jesus is, when we are in the storm He is carrying us. This is my testimony, I had surrendered it all to Jesus. I did not have the mental or physical strength to go through a big surgery or for my stay in the hospital with all the wires and pipes sticking out of me. But I do not think I had a moment when I did not feel the presence of Jesus by my side. Every time I called, He was besides me and He is there still to this very day.
 
 I came back home and from end of June I was scheduled for radiation therapy - once a day for 5 weeks. Again God was kind and I was assigned a hospital which was close to my home so I did not have to travel for 2 hours to get a 30 minutes treatment. There were some difficult days where I would cough a lot but God poured His love on me everyday. Every time I was in pain, I prayed and sang praises and would see my discomfort evaporate within minutes.
 
@@ -42,3 +42,22 @@ From Psalm 30
     Lord my God, I will praise you forever.
 
 I found out that every word of God in the Bible is true, from His promises to His warnings. He is so good and He will never let us go. His plan is to be with us for eternity and whatever may come He is strong enough to teach us or to save us so that we may never go outside His plan.
+
+**Update on 07-October-2020**
+
+As I mentioned above, I was scheduled for a check-up at the end of September. I went through a CT Scan, a bronchoscopy and a MRI. The MRI was needed since the doctors suspected something in my kidney. God sustained me again as we waited for the reports. We trusted God and we knew He plans are good. I read in [Psalms 107](https://www.biblegateway.com/passage/?search=Psalm%20107&version=MSG) -
+
+    Some of you were sick because you’d lived a bad life,
+        your bodies feeling the effects of your sin;
+    You couldn’t stand the sight of food,
+        so miserable you thought you’d be better off dead.
+    Then you called out to God in your desperate condition;
+        he got you out in the nick of time.
+    He spoke the word that healed you,
+        that pulled you back from the brink of death.
+    So thank God for his marvelous love,
+        for his miracle mercy to the children he loves;
+    Offer thanksgiving sacrifices,
+        tell the world what he’s done—sing it out!
+
+**Today** on 07-Oct-2020, we got all the results and with God's grace all my sickness and cancer is gone. Jesus listens to each and every prayer. I live because of His grace and my life is a testimony that every word of the Bible is true and tested. God is there for us and He loves us. No one who runs to Him ever regrets it!
