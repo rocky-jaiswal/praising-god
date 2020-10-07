@@ -43,9 +43,11 @@ From Psalm 30
 
 I found out that every word of God in the Bible is true, from His promises to His warnings. He is so good and He will never let us go. His plan is to be with us for eternity and whatever may come He is strong enough to teach us or to save us so that we may never go outside His plan.
 
+<hr />
+
 **Update on 07-October-2020**
 
-As I mentioned above, I was scheduled for a check-up at the end of September. I went through a CT Scan, a bronchoscopy and a MRI. The MRI was needed since the doctors suspected something in my kidney. God sustained me again as we waited for the reports. We trusted God and we knew He plans are good. I read in [Psalms 107](https://www.biblegateway.com/passage/?search=Psalm%20107&version=MSG) -
+As I mentioned above, I was scheduled for a check-up at the end of September. I went through a CT Scan, a bronchoscopy and a MRI. The MRI was needed since the doctors suspected something in my kidney. God sustained me again as we waited for the reports. We trusted God and we knew when we are with Him, His plans are for our good only. As I read in [Psalms 107](https://www.biblegateway.com/passage/?search=Psalm%20107&version=MSG) -
 
     Some of you were sick because you’d lived a bad life,
         your bodies feeling the effects of your sin;
