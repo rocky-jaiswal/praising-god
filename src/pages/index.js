@@ -33,6 +33,14 @@ function Home() {
                 Hi! I am Rocky Jaiswal. I was diagnosed with cancer in December 2019, on this website I write
                 about how God held me, helped me and taught me during my difficult times.
               </p>
+              <iframe
+                width='560'
+                height='315'
+                src='https://www.youtube.com/embed/pDTqnb6kc0g'
+                frameborder='0'
+                allow='accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture'
+                allowfullscreen
+              ></iframe>
             </div>
           </div>
         </div>
